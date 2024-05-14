@@ -1,5 +1,5 @@
 # 💫 About Me:
-Passionate iOS Dev with 3 years commercial experience. Currently working on my own startup! Fan of Hackintosh. Been building hackintosh machines since childhood.
+Passionate iOS Dev with 5 years commercial experience. Currently working on my own startup! Fan of Hackintosh. Been building hackintosh machines since childhood.
 
 
 ## 🌐 Socials:
